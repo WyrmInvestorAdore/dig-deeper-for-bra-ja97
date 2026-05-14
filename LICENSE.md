@@ -1,4 +1,4 @@
-#  
+#  Experience dig deeper for brainrots like never before with dig deeper for brainrots Script exclusive, the #1 Script. Includes one-hit kill and
 
 
 
